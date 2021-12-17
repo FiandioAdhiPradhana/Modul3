@@ -1,4 +1,4 @@
-# **Module 3 Lab Report**
+# **Modul 3**
 
 ## **Reksa Aldian R (1202192048) & Fiandio Adhi P (1202192034)**
 
